@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LeviPlanelles
-- 👀 I’m interested in sports
+- 👀 I’m interested in sports, you not... calvito
 - 🌱 I’m currently learning how to programm
 - 💞️ I’m looking to collaborate on idk yet
 - 📫 How to reach me @ig leviis_06
